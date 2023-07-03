@@ -16,3 +16,4 @@
 🎯 Let's connect if you're seeking a dedicated professional who can seamlessly navigate between front-end and back-end development, ensuring top-notch performance and user experiences.
 
 ✉️ Feel free to reach out to me at imranali51201@gmail.com. I'm open to exciting opportunities, collaborations, or simply engaging in conversations about all things tech!
+LinkedIn: https://www.linkedin.com/in/imran-ali-8b46ba216/
